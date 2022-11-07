@@ -1,0 +1,1 @@
+Zelensky wins by a landslide

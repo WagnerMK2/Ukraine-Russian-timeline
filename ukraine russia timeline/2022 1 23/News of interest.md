@@ -1,0 +1,5 @@
+### Russia plans to install puppet regime in Ukraine, U.K. government claims
+
+The United Kingdom's government announced Saturday that their latest intelligence assessments suggest Russia plans to overthrow Ukraine's elected government and install a pro-Russian puppet regime. Britain's foreign ministry identified former Ukrainian parliament member Yevheniy Murayev as Russian President Vladimir Putin's top pick to lead the new government. U.K. Foreign Secretary Liz Truss threatened "severe costs" if Russia attempts to invade Ukraine and install a friendly regime, while Deputy Prime Minister Dominic Raab said Russia would face "very serious consequences." Russia denied the allegations, calling them "disinformation."
+
+[NPR](https://www.npr.org/2022/01/22/1075121304/britain-russia-replace-ukraine-government)[REUTERS](https://www.reuters.com/world/europe/russia-faces-severe-sanctions-if-it-installs-puppet-regime-ukraine-uk-minister-2022-01-23/)
