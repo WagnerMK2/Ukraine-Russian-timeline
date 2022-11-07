@@ -1,0 +1,1 @@
+https://belsat.eu/en/news/03-12-2021-poland-s-police-belarus-servicemen-try-to-blind-polish-border-guards-with-strobe-lights-lasers/![[
