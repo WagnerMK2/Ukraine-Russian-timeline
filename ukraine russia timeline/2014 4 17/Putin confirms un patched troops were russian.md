@@ -1,0 +1,1 @@
+Using confusion russia invaded with troops with no id patches. 
