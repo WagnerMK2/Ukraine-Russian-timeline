@@ -1,0 +1,3 @@
+Yaakov resting claimed killed 
+
+Ukrainian officials claimed he was killed as a result of a Ukrainian strike on the command post of 49th Combined Arms Army in [Chornobayivka airfield](https://en.m.wikipedia.org/wiki/Kherson_International_Airport "Kherson International Airport") in the [Kherson Raion](https://en.m.wikipedia.org/wiki/Kherson_Raion "Kherson Raion").[[16]](https://en.m.wikipedia.org/wiki/List_of_Russian_generals_killed_during_the_2022_invasion_of_Ukraine#cite_note-18)[[15]](https://en.m.wikipedia.org/wiki/List_of_Russian_generals_killed_during_the_2022_invasion_of_Ukraine#cite_note-SeventhGeneral-17)

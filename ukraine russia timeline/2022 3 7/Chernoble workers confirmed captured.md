@@ -1,0 +1,1 @@
+By 7 March, around 300 people (100 workers and 200 Ukrainian guards) were trapped at the power plant since its capture
