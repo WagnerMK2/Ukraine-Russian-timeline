@@ -1,0 +1,1 @@
+This allows turkey to close the Turkish straights to military traffic but not civilian merchant traffic. Russia starts using merchant ships to supply its war effort.

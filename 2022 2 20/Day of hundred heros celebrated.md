@@ -1,0 +1,1 @@
+Since 2015 "the Day of the Heavenly Hundred Heroes" is celebrated on 20 February to commemorate the deaths.[[5]](https://en.m.wikipedia.org/wiki/List_of_people_killed_during_the_Revolution_of_Dignity#cite_note-President_of_Ukraine-5)[[6]](https://en.m.wikipedia.org/wiki/List_of_people_killed_during_the_Revolution_of_Dignity#cite_note-en.interfax.com.ua-6)

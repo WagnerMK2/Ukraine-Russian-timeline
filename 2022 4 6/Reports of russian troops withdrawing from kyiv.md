@@ -1,0 +1,1 @@
+https://www.google.com/amp/s/www.forbes.com/sites/joewalsh/2022/04/06/russia-fully-withdraws-from-kyiv-area-us-says-heres-what-could-happen-next/amp/
