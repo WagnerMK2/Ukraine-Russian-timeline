@@ -1,0 +1,4 @@
+[Roman Kutuzov](https://en.m.wikipedia.org/wiki/Roman_Kutuzov_(general) "Roman Kutuzov (general)")
+
+Russian state television reporter Alexander Sladkov on the Telegram messaging app.[[27]](https://en.m.wikipedia.org/wiki/List_of_Russian_generals_killed_during_the_2022_invasion_of_Ukraine#cite_note-Kutuzov-29) Kutuzov was reportedly killed near the village of Mykolaivka, [Popasna Raion](https://en.m.wikipedia.org/wiki/Popasna_Raion "Popasna Raion"), Luhansk Oblast.[[28]](https://en.m.wikipedia.org/wiki/List_of_Russian_generals_killed_during_the_2022_invasion_of_Ukraine#cite_note-30)[[27]](https://en.m.wikipedia.org/wiki/List_of_Russian_generals_killed_during_the_2022_invasion_of_Ukraine#cite_note-Kutuzov-29)[[29]](https://en.m.wikipedia.org/wiki/List_of_Russian_generals_killed_during_the_2022_invasion_of_Ukraine#cite_note-31)
+

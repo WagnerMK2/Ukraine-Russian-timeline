@@ -1,0 +1,1 @@
+Finland declares its intent to apply to nato

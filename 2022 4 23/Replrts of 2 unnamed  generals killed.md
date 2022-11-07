@@ -1,0 +1,3 @@
+On 23 April 2022, Ukraine's Ministry of Defence reported a strike on a Russian [49th Combined Arms Army](https://en.m.wikipedia.org/wiki/49th_Combined_Arms_Army "49th Combined Arms Army") [command post in Kherson Oblast](https://en.m.wikipedia.org/wiki/Russian_occupation_of_Kherson_Oblast "Russian occupation of Kherson Oblast"), killing two generals and critically injuring one. The names of the two generals were not released at the time of the report.[[30]](https://en.m.wikipedia.org/wiki/List_of_Russian_generals_killed_during_the_2022_invasion_of_Ukraine#cite_note-32)[[31]](https://en.m.wikipedia.org/wiki/List_of_Russian_generals_killed_during_the_2022_invasion_of_Ukraine#cite_note-33)
+
+Per Wikipedia
