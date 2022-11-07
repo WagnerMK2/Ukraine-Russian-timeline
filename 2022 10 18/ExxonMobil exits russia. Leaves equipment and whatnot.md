@@ -1,0 +1,1 @@
+![[Screenshot_20221018-160527_Chrome.jpg]]
